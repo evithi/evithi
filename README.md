@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @evithi
 - 👀 I’m interested in ecommerce marketplace
 - 🌱 I’m currently learning marketing
-- 💞️ I’m looking to collaborate on search engine optimization
+- 💞️ I’m looking to collaborate on Australian Manuka Honey
 - 📫 How to reach me at www.evithi.com
 
 <!---
